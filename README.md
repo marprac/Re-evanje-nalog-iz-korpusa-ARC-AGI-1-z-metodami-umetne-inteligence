@@ -1,1 +1,1 @@
-# Re-evanje-nalog-iz-korpusa-ARC-AGI-1-z-metodami-umetne-inteligence
+# Resevanje-nalog-iz-korpusa-ARC-AGI-1-z-metodami-umetne-inteligence
